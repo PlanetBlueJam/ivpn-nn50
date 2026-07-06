@@ -1,4 +1,4 @@
-
+high-speed Mullvad App | cross-platform-support + dynamic-IP offers the most advanced Mullvad app, with cross-platform-support and dynamic-IP. Ideal for users who value privacy
 
 
 
